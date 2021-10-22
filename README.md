@@ -1,2 +1,2 @@
 # Shared_Project
-Kajal and Luna will work together.
+Kajal and Luna boksi will work together.
